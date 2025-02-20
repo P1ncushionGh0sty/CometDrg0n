@@ -19,8 +19,7 @@ Basic DNI:
 > Homophobe/transphobe/racist/zionist/antisemitic, etc.
 > I block/hide all Dandy's World and MCYT/DSMP fans.
 > Anyone on the 18+ server under the age of 18. It's the 18+ server for a reason.
-```
-```
+
 If you're not listed above feel free to interact and talk to me. :]
 ```
 <!---
