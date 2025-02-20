@@ -1,4 +1,4 @@
-READ ME!
+<sup>READ ME!
 
 - AuDHD + social anxiety, please be patient.
 - I block/hide frequently, so if you end up getting hidden you were rude/an asshole or you're the aforementioned DW or DSMP fan.
@@ -18,7 +18,7 @@ Basic DNI:
 - I block/hide all Dandy's World and MCYT/DSMP fans.
 - Anyone on the 18+ server under the age of 18. It's the 18+ server for a reason.
 
-If you're not listed above feel free to interact and talk to me. :]
+If you're not listed above feel free to interact and talk to me. :]</sup>
 <!---
 CometDrg0n/CometDrg0n is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
