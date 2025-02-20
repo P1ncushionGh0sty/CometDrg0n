@@ -2,7 +2,7 @@ Current fandoms/interests:
 - Pokémon
 - Team Fortress 2
 - Hazbin Hotel / Helluva Boss
------------------------------------------------------
+--------------------------------
 Basic DNI:
 - People who actively and publicly hate on my interests/fandoms. (ESPECIALLY HH/HB)
 - Proshipper weirdos, pedos/zoophiles, ect.
