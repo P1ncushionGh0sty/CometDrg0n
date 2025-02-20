@@ -13,6 +13,8 @@ and we call eachother the F slur occasionally.
 > Singlet, not in a system, feel free to educate me on systems if needed bc I'm kinda dumb.
 
 > Please don't copy my skins or randomly come up to sit w/ or boop me, it's kinda fuckin annoying.
+
+> My besties are Kat, Micheal and Willow, if i'm sitting in a group/line w/ 3 other ppl it's more than likely them.
 ```
 ```
 Current fandoms/interests:
