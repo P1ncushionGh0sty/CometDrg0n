@@ -14,9 +14,7 @@ and we call eachother the F slur occasionally.
 
 > Please don't copy my skins or randomly come up to sit w/ or boop me, it's kinda fuckin annoying.
 
-> Usually hanging around the Pokémon area, my default skins are either Silver, N, or Red.
-
-> My besties are Kat, Micheal and Willow, if i'm sitting in a group/line w/ 3 other ppl it's more than likely them.
+> Usually hanging around the Pokémon area, my default skins are either Silver, N, Red, or Piers.
 ```
 ```
 Current fandoms/interests:
