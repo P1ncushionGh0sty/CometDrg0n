@@ -1,8 +1,16 @@
+READ ME!
+
+AuDHD + social anxiety, please be patient.
+I block/hide frequently, so if you end up getting hidden you were rude/an asshole or you're the aforementioned DW or DSMP fan.
+I cuss a lot, so if you're uncomfortable w/ that grow up lol.
+I'm the complete opposite of cis and straight. I joke around w/ my friends and we call eachother the F slur occasionally.
+Singlet, not in a system, feel free to educate me on systems if needed bc I'm kinda dumb.
+---
 Current fandoms/interests:
 - Pokémon
 - Team Fortress 2
 - Hazbin Hotel / Helluva Boss
---------------------------------
+---
 Basic DNI:
 - People who actively and publicly hate on my interests/fandoms. (ESPECIALLY HH/HB)
 - Proshipper weirdos, pedos/zoophiles, ect.
