@@ -14,7 +14,7 @@ and we call eachother the F slur occasionally.
 
 > Please don't copy my skins or randomly come up to sit w/ or boop me, it's kinda fuckin annoying.
 
-> Usually hanging around the Pokémon area, my default skins are either Silver, N, Red, or Piers.
+> Usually hanging around the Pokémon area, my default skins are either Gold (lost Silver), Silver, N, Red, or Piers.
 ```
 ```
 Current fandoms/interests:
