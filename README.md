@@ -17,7 +17,7 @@ and we call eachother the F slur occasionally.
 > Usually hanging around the Pokémon area, my default skins are either
 Steven (Strangled Red), Gold (lost Silver), Silver, N, Red, or Piers.
 
-> I'm never on the safe server, I'm always on the 18+ server.
+> I'm exclusively on the 18+ server, I'm never on the safe server.
 ```
 ```
 Current fandoms/interests:
