@@ -23,6 +23,8 @@ Steven (Strangled Red), Gold (lost Silver), Silver, N, Red, or Piers.
 Current fandoms/interests:
 > Pokémon
 > Team Fortress 2
+> ULTRAKILL
+> Risk of Rain 2
 > Hazbin Hotel / Helluva Boss
 ```
 ```
