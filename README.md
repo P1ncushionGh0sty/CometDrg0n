@@ -22,10 +22,11 @@ Steven (Strangled Red), Gold (lost Silver), Silver, N, Red, or Piers.
 ```
 Current fandoms/interests:
 > Pokémon
+> Hazbin Hotel / Helluva Boss
+> Undertale / Deltarune
 > Team Fortress 2
 > ULTRAKILL
 > Risk of Rain 2
-> Hazbin Hotel / Helluva Boss
 ```
 ```
 Basic DNI:
