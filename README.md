@@ -24,8 +24,8 @@ Current fandoms/interests:
 > Pokémon
 > Hazbin Hotel / Helluva Boss
 > Undertale / Deltarune
-> Team Fortress 2
 > ULTRAKILL
+> Team Fortress 2
 > Risk of Rain 2
 ```
 ```
