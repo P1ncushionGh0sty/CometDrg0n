@@ -15,7 +15,7 @@ and we call eachother the F slur occasionally.
 > Please don't copy my skins or randomly come up to sit w/ or boop me, it's kinda fuckin annoying.
 
 > Usually hanging around the Pokémon area, my default skins are either
-Steven (Strangled Red), Gold (lost Silver), Silver, N, Red, or Piers.
+Wallace, Silver, N, Red, or Piers. If I'm in the Creepypasta area I usually use Gold/Ethan (Lost Silver), Steven (Strangled Red) or Glitchy Red.
 
 > I'm exclusively on the 18+ server, I'm never on the safe server.
 ```
@@ -23,10 +23,10 @@ Steven (Strangled Red), Gold (lost Silver), Silver, N, Red, or Piers.
 Current fandoms/interests:
 > Pokémon
 > Hazbin Hotel / Helluva Boss
-> Undertale / Deltarune
 > ULTRAKILL
 > Team Fortress 2
-> Risk of Rain 2
+> Splatoon
+> Creepypasta (haven't been active in the fandom since I was kid)
 > Friday Night Funkin' (not active in the fandom currently, I just like the game and some mods)
 ```
 ```
