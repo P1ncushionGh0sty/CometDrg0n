@@ -27,6 +27,7 @@ Current fandoms/interests:
 > ULTRAKILL
 > Team Fortress 2
 > Risk of Rain 2
+> Friday Night Funkin' (not active in the fandom currently, I just like the game and some mods)
 ```
 ```
 Basic DNI:
