@@ -36,7 +36,8 @@ Basic DNI:
 > People who actively and publicly hate on my interests/fandoms. (ESPECIALLY HH/HB)
 > Proshipper weirdos, pedos/zoophiles, ect.
 > Homophobe/transphobe/racist/zionist/antisemitic, etc.
-> I block/hide all Dandy's World and MCYT/DSMP fans.
+> I block/hide all Dandy's World and MCYT/DSMP fans. Roblox specific skins
+are on thin ice, y'all keep taking over the Pokémon area.
 > Minors/anyone under 18 years old.
 
 If you're not listed above feel free to interact and talk to me. :]
