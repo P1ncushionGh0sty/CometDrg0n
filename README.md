@@ -28,7 +28,6 @@ Current fandoms/interests:
 > Hazbin Hotel / Helluva Boss
 > ULTRAKILL
 > Team Fortress 2
-> Splatoon
 > Creepypasta (haven't been active in the fandom since I was kid)
 > Friday Night Funkin' (not active in the fandom currently, I just like the game and some mods)
 ```
