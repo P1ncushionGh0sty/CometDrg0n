@@ -12,7 +12,7 @@ and we call eachother the F slur occasionally.
 
 > Singlet, not in a system, feel free to educate me on systems if needed bc I'm kinda dumb.
 
-> Please don't copy my skins or randomly come up to sit w/ or boop me, it's kinda fuckin annoying.
+> Please don't copy my skins. I don't have TT/TD but I do find it annoying to randomly get booped or covered/sat on.
 
 > Usually hanging around the Pokémon area,
 my default skins are either Wallace, Silver, N, Red, or Piers.
