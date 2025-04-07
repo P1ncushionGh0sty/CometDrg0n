@@ -20,7 +20,7 @@ and we call eachother the F slur occasionally.
 my default skins are either Wallace, Silver, N, Red, or Piers.
 
 > If I'm ever in the Creepypasta area I usually use
-Gold/Ethan (Lost Silver), Steven (Strangled Red) or Glitchy Red.
+Gold/Ethan (Lost Silver), Blake (Snow on Mt Silver), Steven (Strangled Red) or Glitchy Red.
 
 > I'm exclusively on the 18+ server, I'm never on the safe server.
 ```
