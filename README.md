@@ -20,7 +20,7 @@ w/ my friends and we call eachother the F slur occasionally.
 > Usually hanging around the Pokémon area,
 my default skins are either Wallace, Red, or Leafeon.
 
-> If my partner is on PT I'm always sitting with him.
+> If my partner is on PT I'm always sitting with him. Usually matching skins, originshipping and reguri/namelessshipping.
 
 > I'm exclusively on the 18+ server, I'm never on the safe server.
 ```
