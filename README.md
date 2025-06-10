@@ -7,8 +7,9 @@ rude/an asshole/annoying or you're the aforementioned DW or DSMP fan.
 
 > I cuss a lot, so if you're uncomfortable w/ that grow up lol.
 
-> I'm the complete opposite of cis and straight. I joke around w/ my friends
-and we call eachother the F slur occasionally.
+> I'm the complete opposite of cis and straight.
+None of my friends are cishet either. I joke around
+w/ my friends and we call eachother the F slur occasionally.
 
 > Singlet, not in a system, feel free to educate me on systems if needed bc I'm kinda dumb.
 
@@ -17,10 +18,9 @@ and we call eachother the F slur occasionally.
 > I don't have TT/TD but I do find it annoying to randomly get booped or covered/sat on.
 
 > Usually hanging around the Pokémon area,
-my default skins are either Wallace, Silver, N, Red, or Piers.
+my default skins are either Wallace, Red, or Leafeon.
 
-> If I'm ever in the Creepypasta area I usually use
-Gold/Ethan (Lost Silver), Blake (Snow on Mt Silver), Steven (Strangled Red) or Glitchy Red.
+> If my partner is on PT I'm always sitting with him.
 
 > I'm exclusively on the 18+ server, I'm never on the safe server.
 ```
