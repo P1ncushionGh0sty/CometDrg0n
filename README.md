@@ -39,6 +39,9 @@ Basic DNI:
 > People who actively and publicly hate on my interests/fandoms. (ESPECIALLY HH/HB)
 > Proshipper weirdos, pedos/zoophiles, ect.
 > Homophobe/transphobe/racist/zionist/antisemitic, etc.
+> Terminally online queer/flag discourse. People are
+actively having their rights taken away in America,
+get a grip and stop making stupid discourse.
 > I block/hide all Dandy's World/Forsaken/Roblox skins and MCYT/DSMP fans.*
 > Minors/anyone under 18 years old.
 
