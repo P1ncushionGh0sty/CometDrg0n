@@ -34,7 +34,7 @@ Current fandoms/interests:
 ```
 ```
 Basic DNI:
-> People who actively and publicly hate on my interests/fandoms. (ESPECIALLY HH/HB)
+> People who actively and publicly hate on my interests/fandoms. (ESPECIALLY HAZBIN/HELLUVA)
 > Proshipper weirdos, pedos/zoophiles, ect.
 > Homophobe/transphobe/racist/zionist/antisemitic, etc.
 > Terminally online queer/flag discourse. People are
