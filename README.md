@@ -7,10 +7,6 @@ rude/an asshole/annoying or you're the aforementioned DW or DSMP fan.
 
 > I cuss a lot, so if you're uncomfortable w/ that grow up lol.
 
-> I'm the complete opposite of cis and straight.
-None of my friends are cishet either. I joke around
-w/ my friends and we call eachother the F slur occasionally.
-
 > Singlet, not in a system, feel free to educate me on systems if needed bc I'm kinda dumb.
 
 > Please don't copy my skins.
@@ -26,8 +22,6 @@ my default skins are either Wallace, Red, or Leafeon.
 Current fandoms/interests:
 > Pokémon
 > Hazbin Hotel / Helluva Boss
-> ULTRAKILL
-> Team Fortress 2
 > Undertale / Deltarune
 > Creepypasta (haven't been active in the fandom since I was kid)
 > Friday Night Funkin' (not active in the fandom currently, I just like the game and some mods)
