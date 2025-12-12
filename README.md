@@ -13,8 +13,7 @@ rude/an asshole/annoying or you're the aforementioned DW or DSMP fan.
 
 > I don't have TT/TD but I do find it annoying to randomly get booped or covered/sat on.
 
-> Usually hanging around the Pokémon area,
-my default skins are either Wallace, Red, or Leafeon.
+> Usually hanging around the Pokémon, Undertale/Deltarune or Hazbin Hotel/Helluva Boss area.
 
 > I'm exclusively on the 18+ server, I'm never on the safe server.
 ```
