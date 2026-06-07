@@ -20,6 +20,7 @@ Current fandoms/interests:
 > Undertale / Deltarune
 ```
 ```
-Minors DNI please and thank you. Other than that I don't have anything else, just don't be a weird freak (negative).
+Minors DNI please and thank you.
+Other than that I don't have anything else, just don't be a weird freak (negative).
 
 ```
