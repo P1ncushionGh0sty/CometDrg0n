@@ -18,9 +18,11 @@ Current fandoms/interests:
 > Pokémon
 > Hazbin Hotel / Helluva Boss
 > Undertale / Deltarune
+> The Amazing Digital Circus
 ```
 ```
 Minors DNI please and thank you.
+I block Vivziepop and Gooseworx "antis"/haters.
 Other than that I don't have anything else, just don't be a weird freak (negative).
 
 ```
