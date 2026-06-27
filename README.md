@@ -24,6 +24,7 @@ Current fandoms/interests:
 Minors DNI please and thank you.
 I block Vivziepop and Gooseworx "antis"/haters.
 ^ (I don't need to explain why attacking queer women over shows they made is insufferable.)
-Other than that I don't have anything else, just don't be a weird freak (negative).
+Idgaf about ship discourse or whatever is "proship"
+but shipping siblings or a child and adult together makes me uncomfortable.
 
 ```
